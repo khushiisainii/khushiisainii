@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @khushiisainii
-- 👀 I’m interested in business
+- 👀 Founder of kanya
 - 🌱 I’m currently learning whatever I can from wherever I can
 - 💞️ I’m looking to collaborate on my small business
 - 📫 you can reach me at luvukhuu@gmail.com
